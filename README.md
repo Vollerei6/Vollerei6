@@ -1,0 +1,4 @@
+- This is Vollerei6's Github account
+- CSDN account has a same ID ( for CN users )
+- SJTU freshman in SEIEE ( Grade 24 )
+- email: tim-677@sjtu.edu.cn
